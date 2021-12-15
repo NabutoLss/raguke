@@ -77,6 +77,11 @@ criar localização
 ➙ /𝙡𝙤𝙡𝙞
 enviar imagens de loli
 
+➙ /𝙥𝙡𝙖𝙦𝙪𝙞𝙣𝙝𝙖
+fazer plaquinha fake
+
+➙ /𝙥𝙡𝙖𝙘𝙖𝙡𝙤𝙡𝙞
+loli segurando placa
 
 𝗣𝗘𝗦𝗤𝗨𝗜𝗦𝗔
 ➙ /𝙜𝙤𝙤𝙜𝙡𝙚
