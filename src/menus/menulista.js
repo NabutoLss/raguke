@@ -74,8 +74,6 @@ criar localização
 
 
 𝙄𝙈𝘼𝙂𝙀𝙈
-➙ /𝙡𝙤𝙡𝙞
-enviar imagens de loli
 
 ➙ /𝙥𝙡𝙖𝙦𝙪𝙞𝙣𝙝𝙖
 fazer plaquinha fake
